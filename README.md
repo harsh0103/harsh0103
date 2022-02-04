@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @harsh0103 you cannot use this repository for any other purpose without giving credit.
